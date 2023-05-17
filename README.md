@@ -1,1 +1,1 @@
-# Gamers Sail News
+# Gamersail News
